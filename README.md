@@ -1,4 +1,4 @@
-# Das-Erbe-der-Runen
+# The Legacy of the Runes
 ---
 
 ## The World of "The Legacy of the Runes"
